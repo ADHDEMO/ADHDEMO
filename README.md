@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @ADHDEMON
-- 👀 my youtube https://www.youtube.com/channel/UCvu2dvNB5U_oBPLriClD2Kg
+- 👋 Hi, I’m @ADHDEMO
+- 👀 
 - 🌱 I’m currently learning to live 
 - 💞️ I’m looking to collaborate on mods for Gmod and tf2 hmu I have good ideas 
 - 📫 How to reach me discord - Kreacher  or Gmail - krecher21@gmail.com
